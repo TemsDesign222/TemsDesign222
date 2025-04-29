@@ -6,4 +6,4 @@
 💬 Ask me about: Anything related to the tech profession
 📫 How to reach me: Connect with me on X https://x.com/te_mi_to_pe1/status/1815330145160286635
 😄 Pronouns: Her
-⚡ Fun fact: I'm a loving person with a great sense of humor!
+⚡ Fun fact: I'm a loving person with a great sense of humor
